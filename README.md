@@ -9,5 +9,4 @@
 
 ✅Very effective for promoting your crypto coin
 
-✅DM me from Telegram: https://t.me/adrianservices
-
+DM me from Telegram: https://t.me/adrianservices if you are interested.🤝
